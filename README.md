@@ -7,4 +7,5 @@ https://yandex.ru/video/preview/2527632983314013619
 3D OYUN PERFORMANS
 https://gameforce.fun/products/gameforce-ace-rk3588s-gaming-handheld
 KONSOL
+https://x96mini.com/blogs/news/rockchip-rk3588-tv-box-android-rk3588-vs-3588s-rk3566
 
