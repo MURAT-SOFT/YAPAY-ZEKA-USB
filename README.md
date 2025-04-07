@@ -5,3 +5,6 @@ https://www.firefly.store/collections/mini-single-board-computer/products/roc-rk
 *******************
 https://yandex.ru/video/preview/2527632983314013619
 3D OYUN PERFORMANS
+https://gameforce.fun/products/gameforce-ace-rk3588s-gaming-handheld
+KONSOL
+
